@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sanic2-0
+- 👀 I’m interested in coding and stuff :3
+- 🌱 I’m currently learning 5th grade stuff
+- 💞️ I’m looking to collaborate on anything that has to do with scratch.mit.edu
+- 📫 How to reach me with my gmail account
+- 😄 Pronouns: any
+- ⚡ Fun fact: i like to sit
